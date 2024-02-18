@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... video games and computers(programming)
 - 🌱 I’m currently learning ... c++ and python
 - 💞️ I’m looking to collaborate on ... c++ and python projects
-- 📫 How to reach me ... (347)447-9934
+- 📫 How to reach me ... banjotobi098@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... Speak Two and a half languages
 
